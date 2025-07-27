@@ -118,9 +118,9 @@ I am dedicated to bringing your digital vision to life with exceptional quality 
 
 Reach out to me via:
 
-*   [**LinkedIn**](https://www.linkedin.com/in/muhammad-haris-afzal-08854a252)
+*   [**LinkedIn**](https://www.linkedin.com/in/muhammad-karar-737318276/)
     
-*   **Email:** harisafzal503@gmail.com
+*   **Email:** muhammadkarar145@gmail.com
     
 
 Let’s build something amazing together! 💥
